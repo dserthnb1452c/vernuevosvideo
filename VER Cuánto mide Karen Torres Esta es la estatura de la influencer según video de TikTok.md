@@ -1,5 +1,3 @@
-Karen Torres es una influencer y creadora de contenido originaria de México, específicamente de Monterrey, así lo informa en su biografía de Instagram, en donde tiene 3.1 millones de seguidores.
+¿Cuánto mide Karen Torres? Esta es la estatura de la influencer, según video de TikTok
 
-La joven se dedica a crear videos para la plataforma de TikTok, en donde su contenido se basa en hacer bailes, trends virales y algunas ocasiones aparece junto a su mascota llamada Canelita.
-
-Sin embargo, en los últimos días ha existido interés en conocer sobre su estatura, ya que si bien frente a la cámara aparenta ser bastante alta, la verdad es que no y ella misma ha confirmado su altura.
+Karen Torres es una influencer de origen mexicano y que en los últimos días sus fans preguntan por su altura. Aquí conocemos:
